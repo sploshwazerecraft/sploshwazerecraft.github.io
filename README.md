@@ -1,2 +1,0 @@
-# sploshwazerecraft.github.io
-# yay
